@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @UntitledAltoid
+- ✨ I like to compose and play music in my spare time 
+- 🌱 I’m currently studying programming
+- 📫 You can reach me at @musicalfrog6@gmail.com
